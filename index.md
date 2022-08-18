@@ -1,7 +1,8 @@
 
 CURRICULUM VITAE
 
-     VO THI HOANG YEN
+ VO THI HOANG YEN
+ 
 ●	Gender: Female
 
 ●	Date of Birth: July 9 1994
