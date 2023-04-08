@@ -5,13 +5,13 @@ CURRICULUM VITAE
  
 ●	Gender: Female
 
-●	Date of Birth: July 9 1994
+●	Date of Birth: xxx xx 1994
 
 ●	Contact address: Phu Thuan Ward, District 7, HCM city
 
-●	Email: hoangyen090794@gmail.com
+●	Email: hoangyenxxxx4@gmail.com
 
-●	Mobile telephone: 0984020493
+●	Mobile telephone: 0984020xxx
 
 
 CAREER OBJECTIVES
